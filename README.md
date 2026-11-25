@@ -2,4 +2,4 @@
 
 <a href="https://github.com/flye-name/solstice"><img width="1917" height="338" alt="cometheader" src="https://github.com/user-attachments/assets/ff695bc0-c728-41ec-8483-062b61b216d7" /></a>
 
-[give me money (or comm me !)](https://ko-fi.com/swirlierthings) 
+[I take comms !](https://ko-fi.com/swirlierthings) 
